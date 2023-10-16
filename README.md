@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @namrathabt
-- 👀 I’m interested in dancing and doing creative things
+- 👀 I’m interested in doing creative and adventureous things
 - 🌱 I’m currently learning btech
 
 - 📫 How to reach me nawlin_nammu
